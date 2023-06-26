@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🕵️‍ I’m a Security and Intelligence Practioner working in Cyber Threat Intelligence
+
+⚡ Fun fact: My peak performance hour starts at 9pm
